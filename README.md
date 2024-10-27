@@ -18,5 +18,4 @@ Feel free to reach out to me through the following platforms:
 - Email: [shanusathar@gmail.com](mailto:shanusathar@gmail.com)
 - LinkedIn: [linkedin.com/in/dalsc2](https://linkedin.com/in/dalsc2)
 - GitHub: [github.com/dani-s-h007](https://github.com/danish)
-# web-bio
-# web-bio
+
